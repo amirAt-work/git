@@ -1,1 +1,1 @@
-Hey there, I'm doin Odin
+Hey there, I'm doin Odin, New here.
